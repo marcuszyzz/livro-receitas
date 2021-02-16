@@ -26,6 +26,8 @@
 
 * batata palha
 
+* Arroz
+
   
 
 ## MODO DE PREPARO
